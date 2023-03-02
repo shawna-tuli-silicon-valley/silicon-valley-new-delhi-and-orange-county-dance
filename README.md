@@ -1,3 +1,3 @@
 <img width="404" alt="Screen Shot 2020-10-31 at 3 28 09 PM" src="https://user-images.githubusercontent.com/19508013/222293698-9789846e-5317-4625-99d0-098847e82890.png">
 
-<src="https://user-images.githubusercontent.com/19508013/222294483-0d7fe7a8-3436-4b98-8186-211fc3142533.jpeg">
+<img width="677" alt="Screen Shot 2023-03-01 at 4 00 24 PM" src="https://user-images.githubusercontent.com/19508013/222294744-e9a3d809-8b0f-4dfc-b005-872ee6e72a7d.png">
