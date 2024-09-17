@@ -13,3 +13,5 @@
 ![A0090EDE-3E4D-469A-816C-D4B76F375137_1_105_c](https://github.com/shawna-tuli-silicon-valley/dance/assets/19508013/cf3fdc9d-2f5e-46a3-8f93-e7b38a7e8fed)
 
 ![IMG_6420](https://github.com/shawna-tuli-silicon-valley/dance/assets/19508013/bab6bfe7-b90d-4138-9f10-f8be51f4d943)
+
+![IMG_4938](https://github.com/user-attachments/assets/2032ac30-db50-453e-8a66-a2b7188b07fd)
